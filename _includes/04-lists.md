@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+1. Benjamin
+  * Baby moustache and beard
+  * Working out together
+  * Talking about creativity in all realms
+  * Exploring restaurants
+  * Cooking together
+  * Chatting in all forms
+2. Trying new things
